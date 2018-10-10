@@ -1,0 +1,1 @@
+# simplify-your-mining-farm
